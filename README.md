@@ -1,4 +1,4 @@
-# Hi, I'm Stanley 👋
+# Hi, I'm Stanley 😊
 
 ## About Me
 
